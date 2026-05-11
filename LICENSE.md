@@ -1,4 +1,4 @@
-# 
+# professional Preset for Sketch for macOS - 3D rendering and auto-retouch offers the most advanced Sketch for macOS preset, with 3D rendering and auto-retouch. Ideal for
 
 
 
